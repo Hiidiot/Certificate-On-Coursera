@@ -1,4 +1,4 @@
-These PDFs are certificates I got on Coursera.   
-They can prove that I have finished courses I have chosen from Coursera.
+These PDFs are certificates I have gotten on Coursera.   
+They prove that I have finished courses chosen from Coursera.
 
 Learn courses, accumulate knowledge, improve skills. 
