@@ -1,3 +1,4 @@
-Certificates I got on Coursera.
+These PDFs are certificates I got on Coursera. 
+They can prove that I have finished courses I have chosen from Coursera.
 
-New year, new start.
+Learn courses, accumulate knowledge, improve skills. 
